@@ -1,4 +1,4 @@
-# 
+# updated Cubase for PC | Cubase for Windows Filter | pitch-shifting + project-templates offers the most advanced Cubase for PC | Cubase for Windows filter, with pitch-shifting and
 
 
 
